@@ -1,1 +1,1 @@
-# gender_equity_petition_signing
+# Gender Equity Petition Signing
